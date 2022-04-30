@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Codrhyme
-- 👀 I’m interested in coding, programming 
+- 👀 I’m interested in coding and programming 
 - 🌱 I’m currently learning nobody is perfect
 - 💞️ I’m looking to collaborate on (nothing for now)
 - 📫 How to reach me telegram
